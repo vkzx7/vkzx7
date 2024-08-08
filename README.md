@@ -1,6 +1,6 @@
-SEJA BEM VINDO AO MEU PERFIL
+☠ SEJA BEM VINDO AO MEU PERFIL ☠
 ▂ ▃ ▄ ▅ ▆ ▇ █ █ ▇ ▆ ▅ ▄ ▃ ▂
-Meu nome é Victor Kaua
+☠ Meu nome é Victor Kaua ☠
 ▄₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪₪▄
 ☢ Sou estudante da 1° série ☢
 ☢ Estou me desenvolvendo na linguagem de JavaScript ☢
