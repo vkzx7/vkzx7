@@ -13,5 +13,5 @@
 ☢ Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos ☢
 
 
-![](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExdXd2eG1jbDYyejZ0Ym5wanFkMmxlampzdnh6eGZqdWR1cWQxOG1pZiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/eNNJyu9LTozXq/giphy.webp)
+![](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExamZiNDZxNmF3c3V2bTVib2w2MThuamY5cDUwOGhxdTBsaWQxbHZlNCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/USQldFTYp0CFd2wmrc/giphy.gif)
 
